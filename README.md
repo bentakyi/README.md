@@ -10,6 +10,6 @@
 
 🌐 Let's connect on [LinkedIn](https://www.linkedin.com/in/benjamin-takyi-889032197) and explore opportunities to collaborate on exciting projects. You can also find more about my work on my [personal website](https://www.your-website.com).
 
-📫 Feel free to reach out to me at [Your Email] for any inquiries, collaboration ideas, or just to chat about tech!
+📫 Feel free to reach out to me at benaktakyi@gmail.com for any inquiries, collaboration ideas, or just to chat about tech!
 
 Let's bring innovation to life, one code at a time. 💻🚀
